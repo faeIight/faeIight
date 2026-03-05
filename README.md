@@ -2,9 +2,11 @@ feli or illuga
 main is pruita !! 
 basic dni
 
-um byi i wont like u if u make my friends uncomfortable ;-;
-or if youre rude for NO reason
+um byi i wont like u if ure rude to me and we arent close
+yes im sensitive so be nice
 #spreadjoy 
+
+JUST because im sensitive doesnt mean i wont warm up
 
 
 NS england yumeshipper
